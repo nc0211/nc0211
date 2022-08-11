@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nc0211
+- 👀 I’m a youtuber as a maker.
+- Welcome to follow my channel: https://www.youtube.com/c/nini9jiang/ and Instagram ID: nini9jiang
+- You can also reach me by email: nini9jiang@gmail.com
